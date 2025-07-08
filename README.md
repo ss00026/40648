@@ -18,4 +18,4 @@
 如果你在寻找一个长期稳定的日本AV免费资源站，不妨收藏本站。我们每天都有新内容上线，为你带来不间断的观影享受，让看片变得更简单、更安心、更自由。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/ss00026/40648 ）</span>
